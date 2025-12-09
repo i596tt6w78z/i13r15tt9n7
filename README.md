@@ -1,20 +1,22 @@
-haii !!
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤhaii !!
 
-˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊
+![photo_2025-12-10_00-37-50](https://github.com/user-attachments/assets/96e9ceb6-c3b1-413d-bb65-b4bce9cfe9f1)
 
-ISTP 9w1 introvert
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊
 
-my replies may seem cold and dry(sometims..), but im rlly sweet to talk
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤISTP 9w1 introvert
 
-idc abt pronouns, but i prefer she/her
+ㅤㅤㅤㅤㅤㅤㅤmy replies may seem cold and dry(sometims..), but im rlly sweet to talk
 
-mostly afk... c+h always allowed i dont bite.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤidc abt pronouns, but i prefer she/her
 
-˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmostly afk... c+h always allowed i dont bite.
 
-i rlly luv matching cosplayss n cuddling with em!!!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊
 
-![52dd1d57a50e5f892adacbd70ccdcfcf](https://github.com/user-attachments/assets/07653815-9804-455d-ab5e-e1ed03514446)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi rlly luv matching cosplayss n cuddling with em!!!
+
+![photo_2025-12-10_00-29-03](https://github.com/user-attachments/assets/0a8d1111-31bf-4bd3-8706-d9276732dcc8)
 
 what i usually do: playing ZZZ/roblox/Minecraft, drawing, sleeping, anddd making skins.
 
