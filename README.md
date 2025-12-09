@@ -14,7 +14,7 @@ mostly afk... c+h always allowed i dont bite.
 
 i rlly luv matching cosplayss n cuddling with em!!!
 
-![photo_2025-12-10_00-48-05](https://github.com/user-attachments/assets/277a9ac6-20ee-4cdc-bf3e-73bb456f9119)
+![photo_2025-12-10_00-57-09](https://github.com/user-attachments/assets/d6fdaf98-ab9a-4562-84e3-5b5936c03c15)
 
 what i usually do: playing ZZZ/roblox/Minecraft, drawing, sleeping, anddd making skins.
 
