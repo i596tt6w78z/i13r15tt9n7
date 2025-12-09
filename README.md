@@ -14,7 +14,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi rlly luv matching cosplayss n cuddling with em!!!
 
-![photo_2025-12-10_00-29-03](https://github.com/user-attachments/assets/ce31eb34-5b7f-4c70-9f46-54b8f465a22c)
+![photo_2025-12-10_00-48-05](https://github.com/user-attachments/assets/277a9ac6-20ee-4cdc-bf3e-73bb456f9119)
 
 what i usually do: playing ZZZ/roblox/Minecraft, drawing, sleeping, anddd making skins.
 
