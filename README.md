@@ -2,7 +2,7 @@ haii !!
 
 ㅤㅤㅤㅤㅤ+ ° .  ๑・° ⊹ . + ° .  ๑ ── ࣪˖  ࣪ ⊹ ࣪ ˖ ──˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊ ── ࣪˖  ࣪ ⊹ ࣪ ˖ ── + ° .  ๑・° ⊹ . + ° .  ๑
 
-ISTP 4w3 introvert
+ISTP 6w7 introvert
 
 my replies may seem cold and dry(sometims..), but im rlly sweet to talk
 
